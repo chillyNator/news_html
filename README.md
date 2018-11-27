@@ -1,1 +1,1 @@
-Костян лох, пасхалочка
+Kostyan lox pasxalo4ka
